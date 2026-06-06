@@ -2,3 +2,6 @@
 okay be practica innit
 <br>
 author rahul
+new =! revise
+funny 
+press the apple
